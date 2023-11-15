@@ -12,4 +12,6 @@ Notebook para analise dos dados coletados
 
 ### Aviso
 
-Análise ainda esta incompleta, mas vou acabar.... juro kkkkk
+Análise ainda esta incompleta, mas vou acabar.... juro kkkl
+(terminando o TCC eu faço)
+
